@@ -18,7 +18,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=New+Rocker&duration=4000&pause=1000&color=858585&center=true&width=435&lines='cause+she+tastes+like+you%2C;only+sweeter.+%3C3)](https://git.io/typing-svg)
 
 
-![u2pe4x](https://github.com/user-attachments/assets/02732437-fab5-4aa9-86e9-02cf4a2e9306)
+![n5gt90](https://github.com/user-attachments/assets/1105e16c-7838-4c00-aecb-10c85e9f1ac5)
+
 
 [carrd.](https://smoshluvr.carrd.co/) (っ҂ཀ•)っ [atabook.](https://ihateyou.atabook.org)
 
