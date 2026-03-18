@@ -29,11 +29,13 @@
      <img align=center width=350 height=200 src="https://64.media.tumblr.com/5de9a0977b01ab59324ccb13f7cda5cf/a05fc3d00ef4deb7-68/s500x750/d0af102c3b8860de016b033e6effcdae313d6510.pnj"/> <br>
       <div align=left>
        <img src="https://files.catbox.moe/ngvmv7.gif"/>
-       - hello, my name is sergei, i use he/him <br>
-       - i'm an infp-t and my enneagram is 4w5 <br>
-       - feel free to cud if you'd like. :-) <br>
-       - bmf and add me on discord if you'd like. <br>
-       - sign my atabook if you see this. <br>
+       ☆ hello, my name is sergei, i use he/him <br>
+       ☆ i'm an infp-t and my enneagram is 4w5 <br>
+       ☆ feel free to cud if you'd like. :-) <br>
+       ☆ bmf and add me on discord if you'd like. <br>
+       ☆ sign my atabook if you see this. <br>
+       ☆ i'm usually near bakery or spawn. <br>
+       ☆ feel free to say hi. ;-) <br>
     </th>
   </tr>
 </table>
