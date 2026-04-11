@@ -21,7 +21,7 @@
 ![n5gt90](https://github.com/user-attachments/assets/1105e16c-7838-4c00-aecb-10c85e9f1ac5)
 
 
-[carrd.](https://smoshluvr.carrd.co/) (っ҂ཀ•)っ [atabook.](https://ihateyou.atabook.org)
+[rentry.](https://rentry.co/crimsoncl0ud) (っ҂ཀ•)っ [atabook.](https://ihateyou.atabook.org)
 
 <table>
   <tr>
