@@ -60,10 +60,6 @@
 
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ad1382fe-dc60-4ca0-9f79-5d522be95cd1/d8h911g-ecab97ac-0f80-4207-8cf8-a44c243095a7.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2FkMTM4MmZlLWRjNjAtNGNhMC05Zjc5LTVkNTIyYmU5NWNkMVwvZDhoOTExZy1lY2FiOTdhYy0wZjgwLTQyMDctOGNmOC1hNDRjMjQzMDk1YTcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.aT9wWijkS-seRT62Bed63sDSkKTEEwCTQCc3kFTGMA8">
 
-<img src="https://64.media.tumblr.com/21dfddcdc8698d08f53426cc85ebbc53/e71d526a99bdda6e-f5/s100x200/31520b4e5d03c187019961cd23bf1d1aa98af527.webp">
-
-<img src="https://i.ibb.co.com/4nW2JZ2N/stamp-3.png">
-
 <img align=center width=1000 height=50 src="https://64.media.tumblr.com/3a8ed9dc388c171b6f4e2025a915b0dd/c3b218973bde2fc8-17/s400x600/48047fbb78790dfef601440e3cc9494d7f918ef1.gifv">
 
 ___
