@@ -65,4 +65,4 @@
 ___
 
 </div>
-<img align=left wdith=400 height=113 src="https://i.ibb.co.com/Q36p9xBw/image.png"/>yea ok dude.
+<img align=left wdith=400 height=113 src="https://files.catbox.moe/8u0q48.jpg"/> yea ok dude.
