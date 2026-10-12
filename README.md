@@ -20,8 +20,8 @@
 
 <div align=center>
   <b>𝗌</b>𝖾𝗋𝗀𝖾𝗂 or 𝐕 .
-  <p>he / him⠀✚⠀infp⠀✚⠀4w5⠀✚⠀ftm</p>
-  <p>946⠀✚⠀gachikoi⠀✚⠀eng/idn⠀✚⠀wasian</p>
+  <p>infp⠀✚⠀4w5⠀✚⠀ftm</p>
+  <p>946⠀✚⠀gachikoi⠀✚⠀eng/idn</p>
 </div>
 
 <table align=left>
