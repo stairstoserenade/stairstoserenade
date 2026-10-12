@@ -1,4 +1,4 @@
-<img align=center width=1000 height=200 src="https://i.postimg.cc/L4NW6PVy/tumblr-2ca543b06b93ebe0f226737eb71c2413-09c790c0-2048.png">
+<img align=center width=1000 height=270 src="https://i.postimg.cc/L4NW6PVy/tumblr-2ca543b06b93ebe0f226737eb71c2413-09c790c0-2048.png">
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
