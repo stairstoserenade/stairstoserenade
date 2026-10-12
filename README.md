@@ -40,3 +40,8 @@
 <img align=right width=200 height=300 src=https://i.postimg.cc/QdHcQNs5/ezgif-2195dcd6258481bf-Photoroom.png>
         <br>
 <a href=https://keywordkian.carrd.co/><img align=left src="https://neckdoll.zombie.jp/material/botan/botan-hanejuji/w/botan-hanecro-link.gif" alt="carrd."> <a href=https://ihateyou.atabook.org/><img width=150 src="https://neckdoll.zombie.jp/material/botan/botan-hanejuji/w/botan-hanecro-guest.gif" alt="atabook.">
+
+  <br>
+
+<img src="https://external-media.spacehey.net/media/s4AZlDhjhm4qpJKmuDL_HsA7z0ibm6OejHsD9FBEEScs=/https://img1.picmix.com/output/stamp/thumb/8/3/7/8/1858738_e6ea8.gif">
+<img src="https://64.media.tumblr.com/02639767f1fe11bd60d7cd45db9b5afc/e71d526a99bdda6e-eb/s100x200/a3a76eb553de29a15a86a4ceb6d70f931f490b8d.webp">
