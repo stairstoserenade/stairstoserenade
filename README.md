@@ -16,7 +16,7 @@ ___
 
 <a href="https://git.io/typing-svg"><img align=right src="https://readme-typing-svg.demolab.com?font=New+Rocker&duration=2900&pause=200&color=5D6EB3&width=165&height=100&lines=%22+little+wanderer+.+.+.;%E2%A0%80hie+thee+home+!+%22" alt="Typing SVG" /></a>
 
-<img align=left height=400 src=https://i.ibb.co.com/B2sNn6P7/Untitled107-20261012185446.png>
+<img align=left height=400 src=https://files.catbox.moe/yajkr9.png>
 
 <div align=center>
   <b>𝗌</b>𝖾𝗋𝗀𝖾𝗂 or 𝐕 .
