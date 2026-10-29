@@ -10,7 +10,7 @@
 
 <div align=center>
 
-<img align=center src=https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/04/tumblr_ee4a89ad4d741fd67588d27d15c7fc21_a07951f1_75.webp> <a align-center href="https://hits.sh/github.com/stairstoserenade/"><img alt="Hits" src="https://hits.sh/github.com/stairstoserenade.svg?style=plastic&label=DEAD&extraCount=3216&color=212121&labelColor=3b305b"/></a>
+<img src=https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/04/tumblr_ee4a89ad4d741fd67588d27d15c7fc21_a07951f1_75.webp> <a align-center href="https://hits.sh/github.com/stairstoserenade/"><img alt="Hits" src="https://hits.sh/github.com/stairstoserenade.svg?style=plastic&label=DEAD&extraCount=3216&color=212121&labelColor=3b305b"/></a>
 
 ___
 
